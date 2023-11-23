@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @diwayanjaliruvi
+- 👋 Hi, I’m Ruvidiwaya
 - 👀 I’m interested in ...Networking Engineer
 - 🌱 I’m currently learning ...Imformation Technology
 - 💞️ I’m looking to collaborate on ...
